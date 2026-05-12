@@ -1,4 +1,4 @@
-# 
+# new MathType for PC | MathType for Windows Addon | custom-functions + numerical-computation is the best MathType for PC | MathType for Windows addon, featuring custom-functions
 
 
 
